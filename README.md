@@ -2,7 +2,7 @@ Hello !
 
 ---
 
-My name is Forest , Cameron / Cam or Jinx . ;;
+My name is Forest , Cameron / Cam or Denji . ;;
 I enjoy playing PT with my friends ! I can be found almost all over the map . ;;
 I'm a bit nervous talking or meeting new people , so I apologize if I'm dry as hell with you ;;
 Read my pronouns and carrd pages to learn more about me ! ;;
